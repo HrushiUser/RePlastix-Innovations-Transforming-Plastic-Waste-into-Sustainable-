@@ -1,4 +1,6 @@
 # RePlastix-Innovations-Transforming-Plastic-Waste-into-Sustainable-
+Document Link:
+https://drive.google.com/file/d/16k0GQevNIK6dz18AwvdueUCs1yLcn8pS/view?usp=sharing
 
 ## Project Overview
 
